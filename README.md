@@ -1,1 +1,1 @@
-This is a website lololololo
+I just make game websites
